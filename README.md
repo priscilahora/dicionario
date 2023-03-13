@@ -1,1 +1,1 @@
-# Dicionário de Mulheres Negras
+# dicionario
